@@ -1,3 +1,14 @@
+
+
+
+
+wisal elorf 
+<img width="286" height="404" alt="Capture d’écran 2025-05-14 152912" src="https://github.com/user-attachments/assets/ec3dcc0a-0dba-4d38-ac44-b5c747a6506d" />
+
+
+
+
+
 # AMAZON ET L'INTELLIGENCE ARTIFICIELLE
 ### Stratégie et performance financière 2024–2025
 *Rapport analytique — Février 2026*
