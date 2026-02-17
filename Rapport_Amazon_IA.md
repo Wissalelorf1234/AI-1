@@ -3,6 +3,9 @@
 *Rapport analytique — Février 2026*
 ![kiko  - Copy](https://github.com/user-attachments/assets/fe5455fc-f271-482f-94c8-be98be6610a0)
 
+![WhatsApp Image 2026-02-17 at 11 41 43 AM](https://github.com/user-attachments/assets/974854b3-205f-4cd6-be85-fa1ab3b74a34)
+
+
 ---
 
 ## 1. Résumé exécutif
